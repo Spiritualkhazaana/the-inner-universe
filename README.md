@@ -1,1 +1,3 @@
-# the-inner-universe
+# *The Inner Universe by Dr. Deepak Ranade: A Journey into Consciousness, Creation & Self*
+## *In a world obsessed with external achievements and material pursuits, Dr. Deepak Ranade invites readers to turn inward. “The Inner Universe” is not just a book—it’s a philosophical expedition into the depths of consciousness, spirituality, and the metaphysical nature of existence. Compiled from his articles in The Speaking Tree column of The Times of India, this book blends neuroscience, quantum physics, spirituality, and non-duality to explore the mysteries of the self and the cosmos.* [More details…](https://spiritualkhazaana.com/inner-universe-consciousness-creation-self/)
+## #inneruniverse #selfrealization #selfdiscovery #spiritualjourney #spiritualgrowth
